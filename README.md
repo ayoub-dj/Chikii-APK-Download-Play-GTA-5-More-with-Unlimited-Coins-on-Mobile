@@ -15,7 +15,7 @@
 **Chikii APK Download (2025 Latest)** – Play GTA 5 and More with Unlimited Coins on Mobile  
 Want to play GTA 5, Red Dead Redemption, and Cyberpunk 2077 on Android? Try **Chikii MOD APK** with unlimited coins and VIP access. Play PC games with zero lag using Chikii’s cloud gaming service.
 
-![Chikii GTA 5 Gameplay](https://vpmods.com/wp-content/uploads/2023/11/Chikii-apk-gta-5-cloud-gaming.webp)
+![Chikii GTA 5 Gameplay](https://vpmods.com/chikii-mod-apk-v4-vip-unlocked-unlimited-coins/)
 
 ### 📌 App Info
 
