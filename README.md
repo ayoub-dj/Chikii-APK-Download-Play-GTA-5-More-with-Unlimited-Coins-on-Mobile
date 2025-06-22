@@ -42,7 +42,7 @@ Want to play GTA 5, Red Dead Redemption, and Cyberpunk 2077 on Android? Try **Ch
 
 Chikii turns your Android phone into a PC gaming device using cloud tech. Whether you want to play **AAA games** or older classics, Chikii has them covered.
 
-![Games list](https://vpmods.com/wp-content/uploads/2023/11/chikii-gta5-rdr2-mortal-kombat.webp)
+![Games list](https://vpmods.com/wp-content/uploads/2025/06/hq720.avif)
 
 ---
 
