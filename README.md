@@ -1,6 +1,6 @@
 # Chikii APK Download – Play GTA 5 and More with Unlimited Coins on Mobile
 
-![Chikii Logo](https://vpmods.com/wp-content/uploads/2023/11/Chikii-apk-logo.webp)
+![Chikii Logo](https://vpmods.com/wp-content/uploads/2025/06/Chikii-MOD-APK-for-Android-Safe-Download-Guide-VIP-Coins-Unlocked-150x150.png)
 
 > 📥 Official Source: [https://vpmods.com/chikii-apk-download-play-gta-5-and-more-with-unlimited-coins-on-mobile/](https://vpmods.com/chikii-apk-download-play-gta-5-and-more-with-unlimited-coins-on-mobile/)
 
